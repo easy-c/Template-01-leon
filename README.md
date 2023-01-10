@@ -7,4 +7,4 @@ https://www.graphberry.com/
 
 But for the code is from me.
 
-Give Your Opinion It Is Amportant And Thanks.
+Give Your Opinion It Is Important And Thanks.
